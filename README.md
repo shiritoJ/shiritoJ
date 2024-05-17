@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @copitsbot
+- 👋 Hi, I’m @ario bot
 - 👀 I’m interested in help you 
 - 📫 How to reach me +54 9 266 483-6487
 - 😄 Pronouns: he/him
